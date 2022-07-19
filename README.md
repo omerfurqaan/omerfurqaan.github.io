@@ -1,1 +1,0 @@
-# omerfurqaan.github.io
